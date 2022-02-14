@@ -1,4 +1,6 @@
-### Hi there 👋
+### Hi there .I am a student majoring in Mathmatics in SDU,China Mainland. 
+I am hoping to grasp some skills in coding.👋
+Wish you all the best!
 
 <!--
 **Lixiuyin/Lixiuyin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
