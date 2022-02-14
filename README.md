@@ -1,6 +1,6 @@
 ### Hi there .
 I am a student majoring in Mathmatics in SDU,China Mainland. 😁
-I am hoping to grasp some skills in coding and wish your generous help or instructions if possible👋
+I am hoping to grasp some skills in coding and wish for your generous help or instructions if possible👋
 Wish you all the best!👻
 
 <!--
